@@ -5,4 +5,5 @@
 - 📫 How to reach me Kion#8243
 - 💻 I'm a charter for fnf
 - I like squid game
--I like playing games
+- I like playing games
+- age I'm 13
