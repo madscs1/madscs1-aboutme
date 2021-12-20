@@ -6,4 +6,3 @@
 - 💻 I'm a charter for fnf
 - I like squid game
 - I like playing games
-- status: idiot
