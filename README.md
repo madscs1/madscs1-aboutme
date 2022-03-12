@@ -7,3 +7,4 @@
 - I like squid game
 - I like playing games
 - roblox username: madscs
+- i'm he/him
