@@ -1,10 +1,11 @@
 - 👋 Hi, I’m @madscs1
-- 👀 I’m interested in fnf
+- 👀 I’m interested in roblox
 - 🌱 I’m currently learning to code
-- 💞️ I’m looking to collaborate on fnf
+- 💞️ I’m looking to collaborate on roblox
 - 📫 How to reach me Kion#8243
 - 💻 I'm a charter for fnf
 - I like squid game
 - I like playing games
 - roblox username: madscs
 - i'm he/him
+age: 14
