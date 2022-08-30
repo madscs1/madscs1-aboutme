@@ -10,3 +10,4 @@
 - i'm he/him
 - age: 14
 - i like morse code
+- biesxual
