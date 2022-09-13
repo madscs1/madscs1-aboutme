@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @madscs1
-- 👀 I’m interested in roblox
+- 👀 I’m interested in  games and stuff.
 - 🌱 I’m currently learning to code
-- 💞️ I’m looking to collaborate on roblox
+- 💞️ I’m looking to collaborate on projects  or  games.
 - 📫 How to reach me Kion#8243
 - 💻 I'm a charter for fnf
 - I like squid game
@@ -11,3 +11,6 @@
 - age: 14
 - i like morse code
 - biesxual
+supports blm  and lbgtq+
+im white
+im not racist
