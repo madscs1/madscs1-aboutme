@@ -11,6 +11,6 @@
 - age: 14
 - i like morse code
 - biesxual
-supports blm  and lbgtq+
-im white
-im not racist
+- supports blm  and lbgtq+
+- i'm white
+-i'm not racist
